@@ -1,4 +1,4 @@
-
+Enhance Excel for macOS with instant Excel for macOS Helper | automated-reports + real-time-collaboration, the #1 helper. Includes automated-reports and real-time-collaboration
 
 
 
